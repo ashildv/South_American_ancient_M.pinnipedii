@@ -1,1 +1,1 @@
-# South_American_pre-colonial_tuberculosis
+# South_American_pre-colonial_M.pinnipedii
